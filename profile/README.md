@@ -1,1 +1,1 @@
-![arcadia_banner-001](https://github.com/user-attachments/assets/cb0df190-2a3a-40dc-ac5f-3ee92aae260e)
+![arcadia_banner-001](https://github.com/user-attachments/assets/9d0d94b0-56b1-46b0-bb58-85643dd7ca29)
