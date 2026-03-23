@@ -7,5 +7,3 @@
 ---
 
 - **문의:** contact@arcadiateam.kr
-
-© 2026 Team Arcadia. All rights reserved.
